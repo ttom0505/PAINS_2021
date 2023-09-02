@@ -10,3 +10,4 @@ My goal is to make meaningful contributions to the business environment and cons
 
 Besides my academic pursuits, I enjoy active hobbies such as running, sports climbing, tennis, and football, and I actively volunteer to cook for seniors.
 
+Contact : ttom0505@hanmail.net
